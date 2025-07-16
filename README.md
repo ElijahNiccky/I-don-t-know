@@ -1,4 +1,4 @@
-# I-don-t-know
+# Please-read
 Hi my name is Niccky or Elijah. You could also call me as Two Time ^_^
 I can draw anything! feel free to send me art requests for free in my discord
 Discord account: 1l0v3_azur3
